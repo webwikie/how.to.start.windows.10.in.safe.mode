@@ -1,0 +1,1 @@
+# how.to.start.windows.10.in.safe.mode
